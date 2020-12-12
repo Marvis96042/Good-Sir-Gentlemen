@@ -1,2 +1,2 @@
 # Good-Sir-Gentlemen
-A Narrative centered around the 1930s
+A Story About a bunch of Criminals learn to fit in as Functioning Citizens...
